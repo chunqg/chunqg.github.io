@@ -1,2 +1,0 @@
-# chunqg.github.io
-Portfolio
